@@ -1,0 +1,2 @@
+# premium-whalebone-scrimshaw-001-whalebone-scrimshaw-maritime
+Tired of vague, non-authentic scrimshaw guides that leave you with more questions than answers? This studio finally delivers a historically accurate, step-by-step system for carving true maritime whalebone art.  This digital studio solves the two biggest pain points in learning scrimshaw: lack of authentic reference material and unclear technique p
